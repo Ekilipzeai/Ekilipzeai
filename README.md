@@ -1,5 +1,5 @@
 👋 Hi, I’m @Ekilipzeai I'm 40's years of age, very new to coding, So new, I thought (CTRL + ALT "V" joke here).
-- 👀 I’m interested in ... Playing and learning Chess, Video games (Call of Duty MW & WZ), Coding, Cybersecurity, Ethical hacking and coding, and some real hacking, but nothing "illegal.
+- 👀 I’m interested in ... Playing and learning Chess, Video games (Call of Duty MW & WZ, Fortnite ZB, Mortal Kombat, PUBG, and APEX ), Coding, Cybersecurity, Ethical hacking and coding, and some real hacking, but nothing "illegal.
 - 🌱 I’m currently learning ... @codecademy, Cybersecurity, Python 3 and Ai building. Always growing at chess, never using AI assistance.
 - 💞️ I’m looking to collaborate on ... Building my personal own ai PET
 - 📫 How to reach me ... You can reach me at Anonycon@tuta.com
